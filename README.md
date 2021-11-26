@@ -1,11 +1,3 @@
--Merhaba, ben "@xqers" 
+-Merhaba, ben "mtx1878" 
  
--Bilgim "%85" 
- 
--Birbirimizi tanıyamayız belki ama "Arkadaş" olabiliriz. 
- 
--İletişim > xqers0@gmail.com 
- 
--İletişim > @xqers0 
-
-
+-Bilgilerim Bitti...
